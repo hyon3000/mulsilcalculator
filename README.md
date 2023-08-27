@@ -8,4 +8,4 @@ i will only share my papers with undergraduate students because they can deduct 
 
 a photo with your student id card and hand-written your email address will verify your identity. before you taking photo, please hide all of your private informations including name, photo, card number, and last 4 digits of student id(as you know, first two value of id '12' means you are undergraduate student, and next two value is your year of admission). 
 
-notice:i will check and reply all of your request on Aug 27 2023
+notice:i will check and reply all of your request on Aug 27 2023-sent Aug 28 00:47 KST,if you haven't received it yet please email me again
